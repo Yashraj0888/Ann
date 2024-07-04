@@ -34,7 +34,7 @@ lives. <br /> I love you, Baby. <br />
 Forever and always,
 <br />
 Yashraj <br />
-<em>This is a one time message so read it again (just kidding) and to continue please click anyhwhere on the screen</em>
+<em>This is a one time message so read it again (just kidding) and to continue please click anyhwhere on the screen and pause before playing other clip</em>
 
 
 
